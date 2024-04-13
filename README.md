@@ -4,4 +4,4 @@ I'm currently pursuing B Tech in Data Science
 💞️ I’m looking to collaborate on ...
 📫 How to reach me rishumodi1001@gmail.com
 😄 Pronouns: he/him
-⚡ Fun fact: Dedicated to my work only.
+⚡ Fun fact: Dedicated to my work only. 
